@@ -1,0 +1,3 @@
+To make bhindi masala, you will need to do some prep work for the lady finger. Wash them, and use a clean kitchen napkin to wipe them dry completely. Then cut the tip and the crown, and shallow fry with little oil, until it shrinks and turns dark green, it should be around 80 % cooked.
+
+Let’s talk about the heart of the dish, the bhindi masala gravy itself. The masala is a basic Punjabi onion-tomato masala seasoned with spices like turmeric, red chilli, cumin, coriander, kasoori methi, garam masala, and amchur powder.
